@@ -1,4 +1,4 @@
-# 
+# Get the ultimate scalping bot for derivatives with scalping bot for derivatives secure Bot - price-monitoring and position-sizing. Featuring price-monitoring and position-sizing,
 
 
 
